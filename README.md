@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in the
 - Cherepovets chemical-technology college
 - in the 3rd year
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate with
 - interesting people 
 - 📫 How to reach me?In my Email
 - tudziknova@gmail.com
